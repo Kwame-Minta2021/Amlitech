@@ -1,1 +1,1 @@
-# Amlitech
+# Amalitech
